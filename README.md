@@ -1,1 +1,1 @@
-Green Tag
+Privacy policy
